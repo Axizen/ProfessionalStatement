@@ -1,2 +1,2 @@
 # ProfessionalStatement
-Cybersecurity Professional Statement - Nicholaus Price
+My name is Nicholaus Price, and I am aiming for a career in cybersecurity. My experiences in game development and laptop technician have given me a strong background in programming and being someone who pays great attention to detail and being highly organized, problem shooting and problem solving come naturally to me. My ability to collaborate effectively with teams and communicate complex technical concepts makes me a valuable asset in any organization. 
